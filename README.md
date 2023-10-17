@@ -1,1 +1,1 @@
-# Safe-Mining.io
+# *Safe-Mining.io*
